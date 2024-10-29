@@ -1,3 +1,3 @@
-- 👋 Olá eu sou o João Victor mais conhecido como @zagofps
+- 👋 Olá eu sou o João Victor.
 - 👀 Eu estou interessado em Fivem e CSGO2...
 - 🌱 PVPLAYER AMADOR DE FIVEM!
